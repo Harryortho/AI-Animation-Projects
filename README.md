@@ -1,5 +1,8 @@
 # AI-Animation-Projects - Right click and open tab to not lose this page.
 
+AI film story board for a film I'm working on with permission from the actors who's face I had the pictures of. 
+https://youtu.be/iU8zNfHoQVU?is=Pu-BOAkkTVQLIUDD 
+
 Hero Training Academy
 https://youtube.com/shorts/ubNDi0xba2I?is=uVwZE5KQj2TZDawF an animation of 3 characters at a training academy
 
