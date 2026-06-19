@@ -1,4 +1,4 @@
-# AI-Animation-Projects
+# AI-Animation-Projects - Right click and open tab to not lose this page.
 
 Hero Training Academy
 https://youtube.com/shorts/ubNDi0xba2I?is=uVwZE5KQj2TZDawF an animation of 3 characters at a training academy
